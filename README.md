@@ -1,2 +1,2 @@
-# Portal-eslterico-alquimico
+# Portal-esterocentrico-alquimico
 Magia y hechizos
